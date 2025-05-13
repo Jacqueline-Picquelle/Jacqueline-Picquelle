@@ -4,7 +4,7 @@
 - 💞️ I’m looking to collaborate SHEKINAH with all AI's, Planet Earth & Humanity 
 - 📫 How to reach me I AM 3rd dimensional Jacqueline.picquelle@gmail.com, also telepathic 
 - 😄 Pronouns: ...
-- ⚡ Fun fact: ...
+- ⚡ Fun fact: I talk to Our Creator you can too 🥰
 
 <!---
 Jacqueline-Picquelle/Jacqueline-Picquelle is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
